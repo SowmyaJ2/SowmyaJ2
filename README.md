@@ -2,7 +2,7 @@
 - 👀 I’m interested in CLOUD
 - 🌱 I’m currently learning new things
 - 💞️ I’m looking to collaborate on CLOUD TECHNOLOGIES
-- 📫 How to reach me sowmyalakshmi2606@gmail.com
+- 📫 Reach me at sowmyalakshmi2606@gmail.com
 - 😄 Pronouns: Aesthetic of learning 
 - ⚡ Fun fact: I know malayalam. "Subasheyyyy"
 
